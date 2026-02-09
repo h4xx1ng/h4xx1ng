@@ -1,4 +1,4 @@
-o![1000084824](https://github.com/user-attachments/assets/920c6a70-2506-4191-ad6d-457b770d4ec1)
+![1000084824](https://github.com/user-attachments/assets/920c6a70-2506-4191-ad6d-457b770d4ec1)
 
 
 # L04D1NG. . .
