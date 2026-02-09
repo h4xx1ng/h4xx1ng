@@ -1,4 +1,4 @@
-![1000084824](https://github.com/user-attachments/assets/920c6a70-2506-4191-ad6d-457b770d4ec1)
+o![1000084824](https://github.com/user-attachments/assets/920c6a70-2506-4191-ad6d-457b770d4ec1)
 
 
 # L04D1NG. . .
@@ -26,7 +26,7 @@ non-binary!
 
 
   
-I have social anxiety so iwc unless very close! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
+I tend to dissocialize much,so don't mind me if i suddenly walk away from a cuddle pile or just crowds overall! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred. Also hi I'm kinda shy so i might be not talkative,but that doesn't mean im not interested in you
 
 
 
@@ -116,6 +116,10 @@ sexists.
 
 
 
+Azel
+
+
+
 
 # Extra info!!^_^
 
@@ -161,3 +165,11 @@ are you italin
 
 
 ![1000084825](https://github.com/user-attachments/assets/985cb89c-f4e7-426e-8579-e5cc3a13656c)
+
+
+
+
+
+
+i keep pushing people away. I'm sorry az,just don't int with me so i won't hurt you further, I'm thankful for the time we spent together
+i promise it'll be better for both of us
