@@ -13,12 +13,12 @@
 
  @discomforted - Vox to my Valentino ^_^
 
-non-binary!
-      
+
+   Genderfluid;
       
    
    
-   prononous:;She/They
+ prononous:; any,he/they preferred the most
 
 # NOTE:;
 
