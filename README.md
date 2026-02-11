@@ -7,7 +7,7 @@
 
 # HELLOOO HI!!!
 
- Ichiro/Val/Seven..,
+ name:; Ichiro/Val.. Seven preferred the most
 
  CEO of 77noli i LOVE them
 
