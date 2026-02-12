@@ -14,11 +14,11 @@
  @discomforted - Vox to my Valentino ^_^
 
 
-  demiboy ;
+  demiboy ; non-binary 
       
    
    
- prononous:; any,he/they preferred the most
+ prononous:; he/they .
 
 # NOTE:;
 
